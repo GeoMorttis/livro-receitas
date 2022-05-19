@@ -75,6 +75,3 @@
 8. Salpique com orégano e a azeite a gosto.
 9. Leve ao forno médio preaquecido por cerca de 30 minutos.
 10. Retire do forno e sirva em seguida.
-
-
-
